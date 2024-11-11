@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ikuowi
-- 👀 Me interesa 
+- 👀 I'm interested in learning programing and expanding my tech skills 
 - 🌱 I’m currently learning programming and growing my knowledge in software development 
 - 💞️ I’m looking to collaborate on projects that help me improve my skills and learn alongside 
 - 📫 How to reach me: markelysdanitza@gmail.com or https://www.instagram.com/kxshinn_x/profilecard/?igsh=YmZiMjN5NmQ3aDd0
